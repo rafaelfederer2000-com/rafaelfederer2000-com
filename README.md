@@ -88,7 +88,7 @@ To continuously improve my technical and creative skills and build useful system
 
 ## 📫 Contact
 
-📧 **Email:** YOUR_EMAIL@example.com  
+📧 **Email:** rafaelfederer2000@gmail.com  
 📍 **Location:** Philippines
 
 ---
